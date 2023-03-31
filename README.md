@@ -1,0 +1,2 @@
+# blog
+Association Strategic What?
